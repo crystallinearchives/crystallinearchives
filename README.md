@@ -5,9 +5,9 @@
 ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀⠀ ⠀⠀ ⠀often afk alone or w friends
 
 ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀⠀⠀ ⠀ ⠀⠀ ⠀⠀ ⠀if im afk, please whisper to interact !!
-
-
-
+ 
+ 
+ 
 `int` ut, hh/hb, genshin enjoyers ｡ -13—17 ｡ ppl w disorders (safe space for you guys <3)
 
 `iwc` +18 ｡ mcyt fandom ｡ minusculetale
