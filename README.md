@@ -2,4 +2,5 @@
 ![](https://i.imgur.com/5xwJ2CN.png)
 ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀𖦹 killerノpommeノlyo 𖤐 shethey ║ minor ⌗
 
-often afk alone or w friends
+⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀⠀ ⠀⠀ ⠀often afk alone or w friends
+⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀if im afk, please whisper to interact !!
