@@ -8,6 +8,10 @@
 
 
 
-`int` ut enjoyers ｡ 13-17
+`int` ut, hh/hb, genshin enjoyers ｡ -13—17 ｡ ppl w disorders (safe space for you guys <3)
 
-`dni` 
+`iwc` +18 ｡ mcyt fandom ｡ minusculetale
+
+`iwec` nightkiller shippers (womp womp this is a proship) ｡ swad + lust skins ｡ nightmare x anyone
+
+`dni` basic dni criteria ｡ pro/comshippers ｡ isnoreal supporters ｡ levianthantale + underlust + pjs daycare ｡ drama players (yk who u r)
