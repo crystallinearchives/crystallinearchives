@@ -5,3 +5,6 @@
 ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀⠀ ⠀⠀ ⠀often afk alone or w friends
 
 ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀⠀⠀ ⠀ ⠀⠀ ⠀⠀ ⠀if im afk, please whisper to interact !!
+
+<details>
+
