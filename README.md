@@ -6,7 +6,7 @@
 
 ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀⠀⠀ ⠀ ⠀⠀ ⠀⠀ ⠀if im afk, please whisper to interact !!
  
-<summary>⸺⸺‎ ‎ ‎ ponytown‎ ‎ ‎ boundaries‎ ‎ ‎ &‎ ‎ ‎ info/byi</summary>
+<br>
  
 `int` ut, hh/hb, genshin enjoyers ｡ -13—17 ｡ ppl w disorders (safe space for you guys <3)
 
