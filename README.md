@@ -18,4 +18,4 @@
 
 <details>
 
-<summary>⸺⸺
+<summary>⠀ ⠀⠀★﹕ 𝖎𝖓𝖙𝖊𝖗𝖆𝖈𝖙 ➜ ponytown infos + boundaries .ᐟ
