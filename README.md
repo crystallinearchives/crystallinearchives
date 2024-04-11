@@ -6,5 +6,8 @@
 
 ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀⠀⠀ ⠀ ⠀⠀ ⠀⠀ ⠀if im afk, please whisper to interact !!
 
-<details>
 
+
+`int` ut enjoyers ｡ 13-17
+
+`dni` 
