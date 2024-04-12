@@ -16,7 +16,7 @@
 
 `dni` basic dni criteria ｡ pro/comshippers ｡ isnoreal supporters ｡ levianthantale + underlust + pjs daycare ｡ drama fiends (yk who u r) ｡ reality checkers ｡ td/tt harassers
 
-<details>
+***
 
 <summary>⠀ ⠀⠀★﹕ 𝖕𝖔𝖓𝖞𝖙𝖔𝖜𝖓 ➜ infos/byi + boundaries .ᐟ</summary>
  ⠀
@@ -32,3 +32,6 @@
  ⠀ ★ my humor kinda sucks, if i ever make you uncomfortable please tell me!! dont be afraid to make me upset, because you wont!
 
  ⠀ ★ i dont really want new friends so dont ask to friend me :( i might want to friend you, but it will be more of green names than close friends (nothing personal ^^')
+
+
+***
