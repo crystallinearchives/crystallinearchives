@@ -18,6 +18,8 @@
 
 ***
 
+<details>
+
 <summary>⠀ ⠀⠀★﹕ 𝖕𝖔𝖓𝖞𝖙𝖔𝖜𝖓 ➜ infos/byi + boundaries .ᐟ</summary>
  ⠀
  
@@ -33,5 +35,6 @@
 
  ⠀ ★ i dont really want new friends so dont ask to friend me :( i might want to friend you, but it will be more of green names than close friends (nothing personal ^^')
 
-
+</details>
+ 
 ***
