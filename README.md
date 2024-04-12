@@ -18,8 +18,7 @@
 
 <details>
 
-<summary>⠀ ⠀⠀★﹕ 𝖕𝖔𝖓𝖞𝖙𝖔𝖜𝖓 ➜ infos + boundaries .ᐟ
-
+<summary>⠀ ⠀⠀★﹕ 𝖕𝖔𝖓𝖞𝖙𝖔𝖜𝖓 ➜ infos + boundaries .ᐟ</summary>
 ####★ do not copy my skins *ask for inspiration*
  ⠀ ★ 
 
