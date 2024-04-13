@@ -17,7 +17,7 @@
 
 `iwec` nightkiller shippers (womp womp this is a proship) ｡ swad + lust skins ｡ nightmare x anyone
 
-`dni` basic dni criteria ｡ pro/comshippers ｡ isnoreal supporters ｡ leviathantale + underlust + pjs daycare ｡ drama fiends (yk who u r) ｡ reality checkers ｡ td/tt harassers ｡ EZEKIEL/KILLER !!1
+`dni` basic dni criteria ｡ pro/comshippers ｡ isnoreal supporters ｡ leviathantale + underlust + pjs daycare ｡ drama fiends (yk who u r) ｡ reality checkers ｡ td/tt harassers
 
 ***
 
