@@ -11,7 +11,7 @@
  
 ***
 
-`int` ut, hh/hb, genshin enjoyers ｡ -13—17 ｡ ppl w disorders (safe space for you guys <3)
+`int` utdr, msm, genshin enjoyers ｡ -13—17 ｡ ppl w disorders (safe space for you guys <3)
 
 `iwc` +18 ｡ mcyt fandom ｡ minusculetale
 
