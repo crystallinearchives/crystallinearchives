@@ -17,7 +17,7 @@
 
 `iwec` nightkiller shippers (womp womp this is a proship) ｡ swad + lust skins ｡ nightmare x anyone
 
-`dni` basic dni criteria ｡ pro/comshippers ｡ isnoreal supporters ｡ leviathantale + underlust + pjs daycare ｡ drama fiends (yk who u r) ｡ reality checkers ｡ td/tt harassers
+`dni` basic dni criteria ｡ pro/comshippers ｡ isnotreal supporters ｡ leviathantale + underlust + pjs daycare ｡ drama fiends (yk who u r) ｡ reality checkers ｡ td/tt harassers
 
 ***
 
@@ -27,6 +27,8 @@
  ⠀
  
  ⠀ ★ do not copy my skins ask for inspiration
+
+ ⠀ ★ probably quiting this game soon lol
  
  ⠀ ★ if i hid you, i have a reason. dont tell me to unhide you or your friends
  
