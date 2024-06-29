@@ -1,9 +1,23 @@
-# 　　♰, 𝚃𝚑𝚎𝚛𝚎'𝚜 𝚓𝚞𝚜𝚝 𝚝𝚘𝚘 𝚖𝚞𝚌𝚑 𝚝𝚑𝚊𝚝 𝚝𝚒𝚖𝚎 𝚌𝚊𝚗𝚗𝚘𝚝 𝚎𝚛𝚊𝚜𝚎 🕷
-![](https://i.imgur.com/5xwJ2CN.png)
+<div align="center">
+
+![](https://komarev.com/ghpvc/?username=X-EVNT&label=GODS+SLAIN&color=476d9d)
+</div>
+
+<p align="center">
+<img src="https://files.catbox.moe/yadb6a.gif" width="640" height="397">
+
+</p>
+<div align="center">
+
+[socials](https://linktr.ee/crystallinearchives) ⠀ ⠀[free 🇵🇸](https://arab.org/click-to-help/palestine/)
+</div>
+
+<p align="center">
+<img src="https://files.catbox.moe/6dz3ty.png" width="487" height="56">
 
 ***
  
-⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀𖦹 killer ノ pomme ノ lyo⠀𖤐⠀she𝘵𝘩𝘦𝘺⠀║⠀minor ⌗
+⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀𖦹 killer ノ lyo⠀𖤐⠀she𝘵𝘩𝘦𝘺⠀║⠀minor ⌗
 
 ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀⠀ ⠀⠀ ⠀often afk alone or w friends
 
@@ -11,13 +25,9 @@
  
 ***
 
-`int` utdr, msm, genshin enjoyers ｡ -13—17 ｡ ppl w disorders (safe space for you guys <3)
+`int` anyone, really!
 
-`iwc` +18 ｡ mcyt fandom ｡ minusculetale
-
-`iwec` nightkiller shippers (womp womp this is a proship) ｡ swad + lust skins ｡ nightmare x anyone
-
-`dni` basic dni criteria ｡ pro/comshippers ｡ isnotreal supporters ｡ leviathantale + underlust + pjs daycare ｡ drama fiends (yk who u r) ｡ reality checkers ｡ td/tt harassers
+`dni` basic dni criteria ｡ pro/comshippers and neutrals ｡ isnotreal supporters ｡ leviathantale + underlust + pjs daycare ｡ endo "systems" ｡ reality checkers ｡ td/tt harassers ｡ ppl who hurt me or my friends GTFO!!
 
 ***
 
@@ -26,19 +36,19 @@
 <summary>⠀ ⠀⠀★﹕ 𝖕𝖔𝖓𝖞𝖙𝖔𝖜𝖓 ➜ infos/byi + boundaries .ᐟ</summary>
  ⠀
  
- ⠀ ★ do not copy my skins ask for inspiration
+ ⠀ ★ do not copy my skins, ask for inspiration
 
- ⠀ ★ probably quiting this game soon lol
+ ⠀ ★ i don't want new friends, sorry, please don't ask to be
  
  ⠀ ★ if i hid you, i have a reason. dont tell me to unhide you or your friends
  
- ⠀ ★ dont c+h without asking!!
+ ⠀ ★ i don't engage in any type of discourse
 
- ⠀ ★ i'm not copying skins, i just dont have a style and i change the colors depending on the character!!!
+ ⠀ ★ most of the times sitting with a friend, rarely or never alone
 
- ⠀ ★ my humor kinda sucks, if i ever make you uncomfortable please tell me!! dont be afraid to make me upset, because you wont!
+ ⠀ ★ if i ever make you uncomfortable please tell me!! dont be afraid to make me upset, because you wont!
 
- ⠀ ★ i dont really want new friends so dont ask to friend me :( i might want to friend you, but it will be more of green names than close friends (nothing personal ^^')
+  ⠀★ i'm nice i promise! don't be afraid to interact (but again, no friending)
 
 </details>
  
