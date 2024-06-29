@@ -48,7 +48,7 @@
 
  ⠀ ★ if i ever make you uncomfortable please tell me!! dont be afraid to make me upset, because you wont!
 
-  ⠀★ i'm nice i promise! don't be afraid to interact (but again, no friending)
+ ⠀ ★ i'm nice i promise! don't be afraid to interact (but again, no friending)
 
 </details>
  
