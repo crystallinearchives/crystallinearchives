@@ -9,7 +9,7 @@
 </p>
 <div align="center">
 
-[socials](https://linktr.ee/crystallinearchives) ⠀ ⠀[free 🇵🇸](https://arab.org/click-to-help/palestine/)
+[socials](https://linktr.ee/crystallinearchives) ⠀ ⠀[free 🇵🇸](https://arab.org/click-to-help/palestine/) ⠀ ⠀[pls sign](https://chng.it/xFcXmtQvk7)
 </div>
 
 <p align="center">
